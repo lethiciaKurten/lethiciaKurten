@@ -3,4 +3,4 @@
 - 🌱 No momento estou apendendo a programar no GitHub.
 - 💞️ Gostaria de colaboração quanto a programação.
 - 📫 E-mail: lethicia.kurten@escola.pr.gov.br
-- 
+- 🌈
