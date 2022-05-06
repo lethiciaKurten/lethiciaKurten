@@ -1,0 +1,6 @@
+- 👋 Ola, meu nome é @lethiciaKurten
+- 👀 Meus interesses principais são em programação e scratch.
+- 🌱 No momento estou apendendo a programar no GitHub.
+- 💞️ Gostaria de colaboração quanto a programação.
+- 📫 E-mail: lethicia.kurten@escola.pr.gov.br
+- 
